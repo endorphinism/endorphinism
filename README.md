@@ -9,9 +9,11 @@ attached my CV, which shows I have the necessary qualifications and experience i
 
 In addition, I have worked at IT One, as programming developer. This role required SAP UI5, JAVA, 
 Javascript, SQL, design and communication skill. In particular, development of front-end and back-end based on usage
+
 1. Javascript 4. Rest
 2. SAP UI5 5. JAVA
 3. Ajax 6. SQL
+
 and I do Test Script, Test Cycle document for monitoring my work completely.
 I can communicate professionally with customers and keep customers confidence in me.
 
