@@ -20,6 +20,8 @@ I’m attracted to this role and I hope that I can demonstrate to you that I wou
 for this company, with my proven skills, commitment to the role, and enthusiasm to learn.
 
 
+
+
 Yours sincerely,
 
 Chavanat  Veerachat
