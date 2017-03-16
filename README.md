@@ -21,7 +21,5 @@ for this company, with my proven skills, commitment to the role, and enthusiasm 
 
 
 Yours sincerely,
-
 Chavanat  Veerachat
-
 chavanat.pongy@gmail.com
